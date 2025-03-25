@@ -44,3 +44,4 @@ IMI College's international outlook, alumni community, and focus on graduating c
 
 
 "Your Success Story Starts Here"
+https://www.imi.ac.in/
